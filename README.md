@@ -15,7 +15,7 @@
 <details>
   <summary> ✴︎˚｡ ABOUT ME ! </summary>
 
-$${\color{#848484}𖥔 ݁ ˖ִ \space info \space info \space info \space info \space info \space info }$$
+$${\color{#848484}𖥔 ݁ ˖ִ \space transgender male. \space wss. \space lovenjoyer. \space therian. \space polish. \space dsmpfan. \space uses \space he/him \space pronouns. \space im \space smarter \space than \space you! }$$
 
 > readme made by [@ColorfulMush](https://github.com/ColorfulMush) [ commission ]
 
