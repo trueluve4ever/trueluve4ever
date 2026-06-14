@@ -15,7 +15,7 @@
 <details>
   <summary> ✴︎˚｡ ABOUT ME ! </summary>
 
-$${\color{#848484}𖥔 ݁ ˖ִ \space transgender male. \space wss. \space lovenjoyer. \space therian. \space polish. \space dsmpfan. \space uses \space he/him \space pronouns. }$$
+$${\color{#848484}𖥔 ݁ ˖ִ \space chase/gray. \space 13yo. \space he/him. \space INTP. \space polish. \space proship. \space biggest \space ruispair \space shipper. }$$
 
 > readme made by [@ColorfulMush](https://github.com/ColorfulMush) [ commission ]
 
