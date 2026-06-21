@@ -28,7 +28,7 @@ $${\color{#848484}𖥔 ݁ ˖ִ \space chase/gray. \space 13yo. \space he/him. \s
 <details>
   <summary> ✴︎˚｡ BYI ! </summary>
 
-$${\color{#a8a7a7}𖥔 ݁ ˖ִ \space info \space info \space info \space info \space info \space info }$$
+$${\color{#a8a7a7}𖥔 ݁ ˖ִ \space PROSHIPPER..!!! \space therian. \space furry. \space yumeshipper. \space lovenjoyer. \space wss. }$$
   
 </details>
 
@@ -39,7 +39,7 @@ $${\color{#a8a7a7}𖥔 ݁ ˖ִ \space info \space info \space info \space info \
 <details>
   <summary> ✴︎˚｡ DNI . . </summary>
 
-$${\color{#414141}𖥔 ݁ ˖ִ \space info \space info \space info \space info \space info \space info }$$
+$${\color{#414141}𖥔 ݁ ˖ִ \space dollbur. \space antis. \space sss. \space over 24. \space under 10. \space toxic. \space tylercatastrophe. \space funnybunny }$$
   
 </details>
 
@@ -50,7 +50,7 @@ $${\color{#414141}𖥔 ݁ ˖ִ \space info \space info \space info \space info \
 <details>
   <summary> ✴︎˚｡ LINKS ! </summary>
 
-[link 1](https://github.com/ColorfulMush) [link 2](https://github.com/ColorfulMush) [link 3](https://github.com/ColorfulMush) 
+[strawpg](https://chasesoot.straw.page/) [atab](https://chasesoot.atabook.org/) [linktr](https://linktr.ee/chasesoot) 
   
 </details>
 
